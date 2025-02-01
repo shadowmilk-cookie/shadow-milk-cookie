@@ -6,11 +6,18 @@
 ⭑ ────ㅤ🃏ㅤ──── ⭑  
 ✮˚. ᵎᵎ  :   shadow milk cookie fictive
 -
-✮˚. ᵎᵎ  :   talks a lot , by the way
--
 ✮˚. ᵎᵎ  :   osdd - 1b
 -
 ✮˚. ᵎᵎ  :   sonic and cookie run player
 -
 ✮˚. ᵎᵎ  :   cookie run brainrotted currently ...
 -
+
+୨୧┈୨୧ 
+alters were currently aware of ..
+* miles 'tails' prower  :  host
+* shadow milk cookie  :  co host
+* opal  :  core
+* idol  :  member
+* plus len  :  member
+* chaos sonic  :  member
