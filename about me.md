@@ -5,4 +5,11 @@
 
 ⭑ ────ㅤ🃏ㅤ──── ⭑  
 ✮˚. ᵎᵎ  :   shadow milk cookie fictive
+-
+✮˚. ᵎᵎ  :   talks a lot , by the way
+-
 ✮˚. ᵎᵎ  :   osdd - 1b
+-
+✮˚. ᵎᵎ  :   sonic and cookie run player
+-
+✮˚. ᵎᵎ  :   cookie run brainrotted currently ...
